@@ -119,4 +119,4 @@ Where required, we will provide additional notice or request consent for relevan
 For privacy questions or requests, contact:
 
 **Dizzoo Studios**  
-Email: [dizzooofficial444@gmail.com](mailto:dizzooofficial444@gmail.com)
+Email: [support@dizzoo.com](mailto:support@dizzoo.com)
